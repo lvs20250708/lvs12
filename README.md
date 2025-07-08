@@ -10,4 +10,4 @@
 
 平台汇集了国产与欧美精品资源，涵盖高质量的麻豆剧、久久蜜系列以及午夜影片，所有资源均支持高清播放，提供流畅的观看体验。每部影片都经过精心筛选，为您提供无广告、无干扰的观影时光，随时享受最新的精彩内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/lvs20250708/lvs12 ）</span>
